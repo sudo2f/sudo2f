@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Fasi Syed
-- 👀 I’m interested in IDF
+- 👀 I’m interested to work in IDF team
 - 🌱 I’m currently learning Cyber Security
 - 💞️ I’m looking for any internship in this domain
 - 📫 syedfasi5@gmail.com
